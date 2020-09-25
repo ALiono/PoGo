@@ -4,6 +4,8 @@ Back then a good friend of mine suggested the online forum as a place to find in
 
 Started from a passive user, I instantly hooked up and created my account. Posting one or two things that I think people will be interested at.
 
+Started from a guest, I finally chose to made account after months of lurking. I posted one or two things that I think people will be interested in. 
+
 At a point of time, I even made it into a top 200 Reddit contributors by karma and even until now I am still actively posting things and even help moderating local community subreddit.
 
 
@@ -12,7 +14,7 @@ People ask me about the first and foremost thing that you have to do in the inte
 
 ---
 
-Try to be courteous to others. See someone having a bad day? Give them a compliment or ask them a thoughtful question, and it might make their day better. Did someone reply to your comment with valuable insights or something that cheered you up? Send them a quick thanks letting them know you appreciate their comment.
+_"Try to be courteous to others. See someone having a bad day? Give them a compliment or ask them a thoughtful question, and it might make their day better. Did someone reply to your comment with valuable insights or something that cheered you up? Send them a quick thanks letting them know you appreciate their comment."_
 
 ---
 
