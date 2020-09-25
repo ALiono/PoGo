@@ -1,10 +1,10 @@
-### I got over reddit in 2012.
+### I know Reddit in 2012.
 
 Back then a good friend of mine suggested the online forum as a place to find information and funny pictures.
 
 Started from a passive user, I instantly hooked up and created my account. Posting one or two things that I think people will be interested at.
 
-At a point of time, I even made it into a top 200 reddit contributors by karma and even until now I am still actively posting things and even help moderating local community subreddit.
+At a point of time, I even made it into a top 200 Reddit contributors by karma and even until now I am still actively posting things and even help moderating local community subreddit.
 
 
 People ask me about the first and foremost thing that you have to do in the internet. The quote ["Remember the human"](https://redd.it/1ytp7q) is always be my words to live by.
