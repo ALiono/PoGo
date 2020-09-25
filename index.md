@@ -14,4 +14,4 @@ _"Try to be courteous to others. See someone having a bad day? Give them a compl
 
 ---
 
-The second is to keep yourself anonymous. "The identity of Reddit as a social networking site, a social news site, and a message board in addition to its affordances of _anonymity_..."[(2018, Kilgo, Ng & Riedl)](https://journals.sagepub.com/doi/full/10.1177/2056305118810216) So, be **careful with what you shared** online in Reddit. Different social media has different layout, format, and culture. Be **aware** that Reddit is not like Instagram, or Facebook. You don't want to be doxxed online, you just don't.
+The second is to keep yourself anonymous. "The identity of Reddit as a social networking site, a social news site, and a message board in addition to its affordances of _anonymity_..."[(Kilgo, Ng & Riedl, 2018)](https://journals.sagepub.com/doi/full/10.1177/2056305118810216) So, be **careful with what you shared** online in Reddit. Different social media has different layout, format, and culture. Be **aware** that Reddit is not like Instagram, or Facebook. You don't want to be doxxed online, you just don't.
