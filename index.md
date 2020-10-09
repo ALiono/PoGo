@@ -1,6 +1,6 @@
 ### Pokémon GO is here to stay. 
 
-Pokémon GO has changed the way people play games. Previously game identic with people being sedentary, caved in their room all day long. Pokémon GO revolutionized the way people play games. This AR-GPS-RPG (Augmented Reality-Global Positioning System-Role Playing Games) genre game enhances the experience of people playing games in the real world.
+Pokémon GO revolutionized the way people play games. Previously game identic with people being sedentary, caved in their room all day long. . This AR-GPS-RPG (Augmented Reality-Global Positioning System-Role Playing Games) genre game enhances the experience of people playing games in the real world.
 
 Players become more active and more social, they walk around more and play the game together with family and friends.
 
