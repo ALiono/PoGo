@@ -6,7 +6,7 @@ Players become more active and more social, they walk around more and play the g
 
 ---
 
-_"But with the COVID-19 pandemic. Will the game survive?."_
+_"But with the COVID-19 pandemic. Will the game survive?"_
 
 ---
 
